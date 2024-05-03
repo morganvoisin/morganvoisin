@@ -1,16 +1,3 @@
-# About me.
+hey everyone, thank you for stopping by and reading this <3 i know i should be using it as a bio thing, but lets just use this secret little place to send you messages. i hope 2024 will treat you right, that you're safe and taken care of, that some things make you feel soft and tender and all happy and warm inside. i hope you heal from the things you don't talk about, that all this tech stuff can be more than just a "career", but a part of your identity that helps you get through all the hard times we have to experience since we're all people and in this thing called life together.
 
-
-**morganvoisin/morganvoisin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ... getting accepted back into college with hopes to finish my degree.
-- 🌱 I’m currently learning ... GitHub, and lots and lots of computer stuff (mostly object oriented programming).
-- 👯 I’m looking to collaborate on ... anything at this point really, smaller projects that I can learn on and get started in this incredible community.
-- 🤔 I’m looking for help with ... advice about everything from education to career planning.
-- 💬 Ask me about ... Basically anything. I'm a divorced trans person with two cats and a computer who works for 911. I'm sure you'll find something to ask me. 
-- 📫 How to reach me: ... Send me a message ! I like messages as long as it's professional.
-- 😄 Pronouns: ... She / They
-- ⚡ Fun fact: ... I can eat a whole lemon.
-
+be creative, work hard, and most importantly love yourself. <3 
